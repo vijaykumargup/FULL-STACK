@@ -18,4 +18,10 @@ practical 4.1
 
 practical 4.2
 
+![4 21](https://github.com/user-attachments/assets/afe230df-a12e-4598-8afd-8f59435296fe)
+![4 22](https://github.com/user-attachments/assets/bc8d8c1b-9f7f-4403-91ef-a6dea48cb748)
+![4 23](https://github.com/user-attachments/assets/9308f73e-4dde-4216-9b72-dd5082e23154)
+
+practical 4.3
+
 
